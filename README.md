@@ -4,4 +4,4 @@
 [my email](mailto:v.zabulskyy@gmail.com)
 
 
-[my linkedin](linkedin.com/in/zabulsky)
+[my linkedin](www.linkedin.com/in/zabulsky)
